@@ -9,7 +9,7 @@ Ingredients for 4 servings
 
 3 cloves garlic cloves, crushed 1 red chilli, chopped 3 tablespoons soy sauce 2 tablespoons tomato puree ½ cup water (100 mL)
 
-recipe:                                                                                                    
+recipe:                                                                                                     
 Preparation:                        
 Season the chicken with salt and pepper. 
 Cut the chicken into thin strips then coat in the egg wash and flour. 
